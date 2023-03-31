@@ -1,1 +1,1 @@
-# Characterization-of-the-city-of-the-future-from-a-science-fiction-and-climate-fiction-corpus
+# Characterization-of-the-city-of-the-future-from-a-science-fiction-corpus
